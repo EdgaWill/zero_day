@@ -1,1 +1,1 @@
-ingreso directo
+ingreso direc
